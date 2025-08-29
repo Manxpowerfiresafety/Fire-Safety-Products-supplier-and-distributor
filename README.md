@@ -23,7 +23,7 @@ At MANXPOWER, we prioritize safety, quality, and trust. Here’s why customers c
 <li><b>Customer Support – </b>Our responsive team provides expert guidance for installation and maintenance.</li><br>
 <h3>Industries We Serve</h3>
 MANXPOWER is trusted by a wide range of industries for robust fire safety solutions:<br>
-<li><b>Residential Societies – </b>Providing essential safety tools for apartment complexes and gated communities.</li>
+<li><b>Residential Societies – </b>Providing essential safety tools for apartment complexes and gated communities.</li><br>
 <li><b>Factories & Industrial Units – </b>Heavy-duty equipment to meet the demanding needs of manufacturing plants.</li><br>
 <li><b>Hotels & Hospitality – </b>Ensuring guest and staff safety with advanced alarms and sprinkler systems.</li><br>
 <li><b>Shopping Malls & Commercial Spaces – </b>Comprehensive safety solutions for large, high-traffic areas.</li><br>
