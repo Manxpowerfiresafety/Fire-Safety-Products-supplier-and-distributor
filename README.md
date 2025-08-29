@@ -27,7 +27,7 @@ MANXPOWER is trusted by a wide range of industries for robust fire safety soluti
 <li><b>Factories & Industrial Units – </b>Heavy-duty equipment to meet the demanding needs of manufacturing plants.</li><br>
 <li><b>Hotels & Hospitality – </b>Ensuring guest and staff safety with advanced alarms and sprinkler systems.</li><br>
 <li><b>Shopping Malls & Commercial Spaces – </b>Comprehensive safety solutions for large, high-traffic areas.</li><br>
-<li>Hospitals & Healthcare Facilities –Reliable systems to safeguard critical medical infrastructure. </li><br>
+<li><b>Hospitals & Healthcare Facilities –</b> Reliable systems to safeguard critical medical infrastructure. </li><br>
 <li><b>Educational Institutes – </b>Safe and secure environments for students and staff.</li><br>
 MANXPOWER is your trusted partner in fire protection. With a comprehensive product range and unmatched expertise, we help safeguard lives and property. Choose MANXPOWER for reliable <a href="https://manximpex.com/" title="fire safety products" alt"fire safety products" <a>fire safety products</a> , expert service, and peace of mind.<br>
 <h3>About us:</h3>
