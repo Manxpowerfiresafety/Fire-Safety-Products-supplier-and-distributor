@@ -32,3 +32,15 @@ MANXPOWER is trusted by a wide range of industries for robust fire safety soluti
 MANXPOWER is your trusted partner in fire protection. With a comprehensive product range and unmatched expertise, we help safeguard lives and property. Choose MANXPOWER for reliable <a href="https://manximpex.com/" title="fire safety products" alt"fire safety products" <a>fire safety products</a> , expert service, and peace of mind.<br>
 <h3>About us:</h3>
 Manx Impex, an ISO 9001:2015 certified company, established in 2015 is a partnership firm located in the heart of Delhi. We have earned an excellent name as a firm since we have started, and our drive to serve our customers helps us achieve greater heights every day. We supply/distribute our products to numerous businesses as well as customers in different parts of India, and we are constantly trying to increase our supply.<br>
+<h3>Get in touch with us:</h3>
+<li>For order,visit: https://manximpex.com/ </li><br>
+<li>E-mail: info@manximpex.com </li><br>
+<li>Contact number: +91- 7428115550, +91- 7428115550.</li><br>
+<li>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006.</li><br>
+<h3>Follow us on:</h3>
+<li>Instagram: https://www.instagram.com/manximpex/ </li><br>
+<li><b>Facebook: https://www.facebook.com/manximpex/ </b></li><br>
+<li>LinkedIn: https://in.linkedin.com/company/manx-impex </li><br>
+<li>Pinterest: https://in.pinterest.com/manximpex/ </li><br>
+<h3>People also searches:</h3>
+<a href="https://manximpex.com/" title="Fire safety solutions" alt"Fire safety solutions" <a>Fire safety solutions</a> | <a href="https://manximpex.com/" title="Fire safety equipment" alt"Fire safety equipment" <a>Fire safety equipment</a> | <a href="https://manximpex.com/" title="Fire protection services" alt"Fire protection services" <a>Fire protection services</a> | <a href="https://manximpex.com/" title="Fire and safety equipment" alt"Fire and safety equipment" <a>fire and safety equipment</a> | <a href="https://manximpex.com/" title="Fire safety products supplier & distributor" alt"Fire safety products supplier & distributor" <a>Fire safety products supplier & distributor</a>
